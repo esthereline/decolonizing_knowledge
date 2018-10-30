@@ -14,9 +14,7 @@ Raw data cannot be produced until they are processed.
 The second hierarchy is converting raw data into information.
 Information is contained as descriptions and is known to be useful.
 It is known that data is inferred to become information.
-Information is structured or
-
-structured and organized data which has been converted to become relevant in a particular situation (Machlup, 2000).
+Information is structured or structured and organized data which has been converted to become relevant in a particular situation (Machlup, 2000).
 Information may still consist of symbols and signs which are subjective meaning they can be utilized in a specific context.
 The final hierarchy in the Ubuntu traditional system of knowledge is the processing of information to produce knowledge.
 The knowledge contained mixed experience, contextual information, values and expert sights which provide an important environmental framework for understanding a particular situation.
