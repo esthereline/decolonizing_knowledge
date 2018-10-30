@@ -27,14 +27,14 @@ The organization and processing of information result in knowledge that offers a
 Therefore, the Ubuntu system of knowledge produces knowledge here to act as contextual information, values, experience, and rules that bind a social setting.
 The Ubuntu traditional knowledge has been kept in a way that allows tourists obtained information about the Ubuntu cultural setting.
 
-Through decolonizing knowledge, hospitality in different cultures is considered important in enabling individuals to extract the relationship between individuals of varied caliber (Koskinen, 2013).
-The system significantly keeps knowledge in such a way that it becomes easy for the next generation to obtain, analyze and consume it.
-A hierarchical system of gathering and producing knowledge in the Ubuntu traditional system is important in contemporary society as it provides effective retrieval of knowledge by different scholars regarding hospitality issues in a particular cultural setting.
-
-The knowledge produced is very important with regards to aspects of hospitality.
+Decolonizing knowledge/research is a way to undermine hierarchy.
+And Ubuntu is thereby a way to cope with the other within the knowledge production itself, to open up the 'authorship' in a way and to create a dynamic knowledge system.
+Wherein the ego isn't the main thing.
+In relations to hospitality, Ubuntu system of knowledge offers an opportunity to the reader to see and obtain knowledge in the same way as the host and the guest.
+The guest and the host will be in the position to critical internalize knowledge in a similar way.
+However, that is what the hospitality means of course as it is open towards the “other.” The hospital requires that knowledge be gathered and produced in such a way that it is open to “other” and Ubuntu knowledge system does allow open access to the knowledge to others.
 Through systems of knowledge, people show their honest, kindness and welcome people from different cultures.
 Knowledge creates a smooth relationship between people from different backgrounds and thus they will interact in a peaceful manner (Machlup, 2000).
-Hospital is an important component of the society and producing knowledge ensures highly respected interconnected society.
 
 
 
