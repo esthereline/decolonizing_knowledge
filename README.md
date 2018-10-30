@@ -26,9 +26,15 @@ Accordingly, knowledge refers to a synthesis of different sources of information
 The organization and processing of information result in knowledge that offers an understanding, accumulated knowledge, and experience.
 Therefore, the Ubuntu system of knowledge produces knowledge here to act as contextual information, values, experience, and rules that bind a social setting.
 The Ubuntu traditional knowledge has been kept in a way that allows tourists obtained information about the Ubuntu cultural setting.
-Through the system, tourists are in the position to extract the relationship between individuals of varied caliber (Koskinen, 2013).
+
+Through decolonizing knowledge, hospitality in different cultures is considered important in enabling individuals to extract the relationship between individuals of varied caliber (Koskinen, 2013).
 The system significantly keeps knowledge in such a way that it becomes easy for the next generation to obtain, analyze and consume it.
-A hierarchical system of gathering and producing knowledge in the Ubuntu traditional system is important in contemporary society as it provides effective retrieval of knowledge by different scholars.
+A hierarchical system of gathering and producing knowledge in the Ubuntu traditional system is important in contemporary society as it provides effective retrieval of knowledge by different scholars regarding hospitality issues in a particular cultural setting.
+
+The knowledge produced is very important with regards to aspects of hospitality.
+Through systems of knowledge, people show their honest, kindness and welcome people from different cultures.
+Knowledge creates a smooth relationship between people from different backgrounds and thus they will interact in a peaceful manner (Machlup, 2000).
+Hospital is an important component of the society and producing knowledge ensures highly respected interconnected society.
 
 
 
